@@ -47,3 +47,5 @@ patience, de leur engouement et leur motivation. Le forum</br >
 europasecurity.org (voir dans la page amis et partenaires) , je remercie</br >
 cette communauté qui a su provoquer cette sérendipité d'idées</br >
 fructueuses.</br >
+
+[Archive.org mirror](https://archive.org/details/501337rlz)
